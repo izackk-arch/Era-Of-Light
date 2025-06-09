@@ -1,2 +1,2 @@
 # Era-Of-Light
-Ministry Works for Jesus
+To win souls, raise leaders, make disciples
